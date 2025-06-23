@@ -23,8 +23,8 @@ staring today 22nd june 2025;
  linkdIn:[https://www.linkedin.com/in/keerthy-r-7b557328a]
 
  # fun fact:
- i think iam quite boring idk what to put here but iam working on making this section cooler 
- someday #nofunfacts
+ idk what to put here but someday i make this section cooler,not from chatgpt ofcourse
+ #nofunfacts
 
 
 
